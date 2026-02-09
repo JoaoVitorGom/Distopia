@@ -26,3 +26,23 @@ Abram os olhos.
 Libertem as mentes.
 E reflitam.
 
+
+As pessoas esqueceram o que significa ser tulense.
+Há muito, já nem sabem o que essa palavra carrega.
+
+E por quê?
+Porque abraçamos os costumes de Asur. Introduzimos em nossos lares uma podridão inominável. Permitimos que nossas crianças se moldassem, desde a mais tenra idade, pelas depravações alheias.
+
+E agora? Agora eis no que nos tornamos:
+
+Nossos homens desejam cabelos lisos e dourados, como os dos homens de Asur.
+
+Nossas mulheres sonham com corpos que imitem as moças daquele povo asqueroso.
+
+Nossa elite não passa de um cão faminto e sarnento, que espera, ansioso, pela bondade de seus “magníficos donos” — os asurenses —, para que estes, em sua “imensurável graça”, derrubem migalhas de mesas banhadas a ouro, e assim saciem sua fome servil.
+
+Isso é dar certo?
+Isso é progresso, como apregoam políticos e economistas?
+
+Se a resposta for “sim”, então eu escolho a morte sob a mais cruel tortura — pois preferirei sempre a ruína digna à vitória vergonhosa.
+
